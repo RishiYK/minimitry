@@ -1,1 +1,1 @@
-# minimitry
+# minimi
